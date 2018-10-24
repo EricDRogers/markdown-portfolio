@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+I like to play with puppies :thumbsup:
+
+This thing is very silly :thumbsdown:
